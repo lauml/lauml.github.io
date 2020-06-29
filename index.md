@@ -1,1 +1,3 @@
 # laumls Website
+
+Lauml is a female fantasy character that lives in a big city full of villans. She is using all sorts of technical and scientific devices to protect the cities inhabitants form the evil. The problem is: nothing quite works out as supposed to because materiality has decided to resist her ambitions. Lauml never gives up but always fails to achieve big changes for society not realizing that she is ending up helping people around her with very small daily problems.
